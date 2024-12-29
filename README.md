@@ -1,1 +1,0 @@
-## Bozdakhov Jenis
